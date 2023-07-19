@@ -17,6 +17,6 @@ Moving forward, I would like to explain my reasons for resignation, and I hope y
 
 That being said, I am very grateful to all the people who have been around while I was a beatmap nominator, as well as would like to thank NAT for allowing me to stay in the team for so long. I really hope that my service as a BN had been helpful to some of you or the community in general.
 
-This is not the end, trust me, I will be back at some point, maybe at the beginning of 2024, we will see.
+This is not the end, trust me, I will be back at some point, maybe in the beginning of 2024, we will see.
 
 Best of luck to everyone, and I hope to see you guys soon, enjoying my new mapping projects!
